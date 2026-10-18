@@ -1,2 +1,2 @@
 # SeekingYourHelp
-My Blog for looking our family daily needs
+My Blog looking for our family daily needs
